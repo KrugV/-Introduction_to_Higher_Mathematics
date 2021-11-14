@@ -1,1 +1,1 @@
-# -Introduction_to_Higher_Mathematics
+# Introduction_to_Higher_Mathematics
